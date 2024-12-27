@@ -4,9 +4,9 @@ I'm gay, now i just need the mer!
 
 Big boobs
 
-## Languages i know:
+## Languages i use:
 
-[![Code](https://skillicons.dev/icons?i=cpp,java,php,mysql&theme=light)](https://github.com/irrdkwhattoput/)
+[![Code](https://skillicons.dev/icons?i=cpp,java,php,mysql,js&theme=light)](https://github.com/irrdkwhattoput/)
 
 ## Stuff i use:
 
